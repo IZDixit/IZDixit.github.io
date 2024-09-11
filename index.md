@@ -1,1 +1,1 @@
-This is my blog on the neccesity to learn programming or just undersatnding what it's all about in this age of *AI*!
+I write to the world, perched at the edge of my chair, which rests at the edge of a table in a room standing at the edge of a house, at the edge of a town, in a country on the edge of a continent, at the edge of the world.
