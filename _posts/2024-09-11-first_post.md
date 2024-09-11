@@ -1,0 +1,3 @@
+# Why you should study Computer Science (The language & culture of a coming species)
+
+This is the beginning..........
