@@ -18,7 +18,9 @@ Let me let you in the questions that come to the top of my mind in regard to the
 **Artificial SuperIntelligence (ASI)**
 This is the type of AI that is self aware,the first thing that comes to mind is what is it that we would have figured out for us to have the ability to create a being that is self aware, have we fully understood what consciousness is?, so does that mean that mean consciosness is something tangible something that we can move into another object so can we finally defeat death the inbeatable foe? and what then happens to this AI beings what consequences await them for being concious will they go through the beautiful and horrific situations we went through will they too invent religion and later on kill God, will they have a History a reference to where they are from and where they are headed?
 **Artificial General Intelligence (AGI)**
-
+The AI that will respond to our emotions, one that has the ability to read our feelings to make us feel better,something that majority of humans are unable to get a grasp on.
+I'm just thinking of one application, one that persistently comes to mind is if we created an AI app or bot that accompanied us through all our decisions be it meetings for signing a contarct or just going out on a date, an AI bot that would guide us and help us avoid getting into messy relationships with for example narcissistic maniacs, well this goes well to an extent that if everyone adopts it we will be able to eradicate all the negative traits that accompany us as human beings, an evolution of the human character, well as every human thing is complicated what happens when those that are incharge in deciding what traits are "acceptable" and which ones are "not acceptable" are ompromoised, what then will happen will they then have the power to dictate what breed of humans come in the 100 years
+ 
 
 
 
